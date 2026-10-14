@@ -1,4 +1,4 @@
-# " they are pure nature; they show us the unvarnished, natural truth, and are therefore fitted, as nothing else is, to give us back an attitude that accords with out basic human nature when our consciousness has strayed too far from its foundations and run into an impasse. "
+## " they are pure nature; they show us the unvarnished, natural truth, and are therefore fitted, as nothing else is, to give us back an attitude that accords with out basic human nature when our consciousness has strayed too far from its foundations and run into an impasse. "
 </p>
 <br> wip :)
 </p>
